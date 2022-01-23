@@ -1,1 +1,1 @@
-#  Hello^^ I am Makarenko Valeriia. Cheer up!
+#  Hello^^ I am Valeria Makarenko. Cheer up!
